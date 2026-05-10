@@ -5,8 +5,8 @@ A deep look at the concentration of CAFOs on the Eastern Shore Maryland and the 
 
 ## Eastern Shore Md
 
+..ve-media https://mdcamping.com/img/CarolineCounty_RichardScott_900x600_900_90_jpg
 
-https://mdcamping.com/img/CarolineCounty_RichardScott_900x600_90.jpg
 
 Eastern Shore Maryland lies on the eastern side of the Chesapeake Bay and is largely a rural region. It is home to an estimated half a million people and contains fertile fields thanks to the many rivers and wetlands nearby. While Eastern shore does boost a fair share of commercial fishing and farming, it is the perfect location for farming. Over the last century, large chicken farms have been emerging along the shore, and with them a cascade of negative environmental effects. These massive farms are tactically placed around poorer communities,  disproportionately affecting the people of the Eastern Shore.
 
